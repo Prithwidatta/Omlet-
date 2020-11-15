@@ -1,0 +1,1 @@
+before we start get a bowl and an egg. First break the into the bowl and make sure that the eggs shell does not drop in the bowl. Then add some salt one the omlet.After put the bowl into the microwave and put the timer to 1 minute. finally you have your omlet!

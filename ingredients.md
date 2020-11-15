@@ -1,0 +1,1 @@
+The only ingredients are egg and salt
